@@ -5,7 +5,7 @@
 
 *E-mail:* bebebebra22@gmail.com
 
-*Instagram:* mksmkkkkkk
+*Instagram:* @mksmkkkkkk
 
 ## Briefly About Myself:
 I came into this field to learn something new and to find myself in life. I started studying HTML, CSS.
